@@ -10,5 +10,6 @@ Coming Soon...
 
 ## Author
 
-@Jenna Everard
+@JennaEverard
+
 Proud Member of Blahajgang :watermelon:🦈
