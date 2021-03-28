@@ -12,4 +12,4 @@ Coming Soon...
 
 @JennaEverard
 
-Proud Member of Blahajgang :watermelon:🦈
+Proud Member of [Blahajgang's Melon Squad](https://melon.blahajgang.lol/):watermelon:🦈
